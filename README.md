@@ -1,1 +1,1 @@
-No ano de 2019 fiz varios conversores de bases variadas, aqui eu os guardo ;)
+No ano de 2019 fiz vários conversores de bases variadas, aqui eu os guardo ;)
